@@ -1,3 +1,3 @@
 - 👋 Eyvind Kjellevold Malde
-- 🇳🇴 Bergen/Norway
+- 🇳🇴 Bergen
 - 👾 Eyv#4130
