@@ -1,6 +1,3 @@
 - 👋 Eyvind Kjellevold Malde
 - 🇳🇴 Bergen/Norway
-- 👀 Tech / Gaming
-- 🌱 Studying information technology at HVL Bergen
-- 📫 eyvind.malde@gmail.com
 - 👾 Eyv#4130
